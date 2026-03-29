@@ -3,5 +3,5 @@
 こういうの初めて書くので説明が下手だったりミスがあったらすみません。     
 
 作者:ぺーと    
-discord:[@ytxm](https://discord.com/users/1404381076184502272)
+discord:[@rqnn](https://discord.com/users/1404381076184502272)
 
